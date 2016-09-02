@@ -1,4 +1,6 @@
-12 jumbo shrimp, 12-16 count per pound, peeled and deveined
+12 jumbo shrimp,
+	12-16 count per pound, 
+	peeled and deveined
 12 slices thin bacon
 kosher salt
 
