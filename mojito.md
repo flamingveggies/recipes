@@ -8,7 +8,7 @@ INGREDIENTS
 2 heaping teaspoons superfine sugar
 1 cup crushed ice
 12 fresh mint leaves, plus 5 small sprigs for garnish
-1/4 cup (2 ounces) white rum
+1/2 cup (4 ounces) good quality white rum
 2 tablespoons (1 ounce) club soda
 
 PREPARATION
