@@ -7,15 +7,15 @@
 ##### Yield: 6 servings
 ##### Level: Easy
 
-1 quart peanut oil
-1 cup stone-ground fine cornmeal
-1 cup all purpose flour
-1 teaspoon seafood seasoning (recommended: Old Bay)
-1/2 teaspoon kosher salt
-1/4 teaspoon hot smoked paprika
-1/4 teaspoon freshly ground black pepper
-6 (7 to 9-ounce) US farm-raised catfish fillets, rinsed and thoroughly patted dry
-3/4 cup low-fat buttermilk
+* 1 quart peanut oil
+* 1 cup stone-ground fine cornmeal
+* 1 cup all purpose flour
+* 1 teaspoon seafood seasoning (recommended: Old Bay)
+* 1/2 teaspoon kosher salt
+* 1/4 teaspoon hot smoked paprika
+* 1/4 teaspoon freshly ground black pepper
+* 6 (7 to 9 oz) US catfish fillets, rinsed and thoroughly patted dry
+* 3/4 cup low-fat buttermilk
 
 Heat the **peanut oil** in a 5-quart Dutch oven over high heat until it reaches 350 degrees F on a deep-fry thermometer. Adjust the heat to maintain the temperature.
 
