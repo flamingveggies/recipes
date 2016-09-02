@@ -20,4 +20,4 @@ TIP: If you get to the end of the shrimp when you're halfway through the bacon, 
 6)  Heat a heavy bottomed skillet over medium-high heat. If you use a cast iron skillet, you won't need any oil as the shrimp will not stick, otherwise add just enough to coat the bottom. Sear the shrimp on each side for maybe 30 seconds and then finish them in the oven for about 6-8 minutes.
 
 7) Eat them with a knife and fork and enjoy!
->>>>>>> 47354ec209201cef3a22f94694e85b7c9eb97c2b
+
