@@ -1,11 +1,11 @@
-Total Time:
-45 min
-Prep:
-25 min
-Cook:
-20 min
-Yield:6 servings
-Level:Easy
+# Total Time:
+##### 45 min
+##### Prep:
+##### 25 min
+##### Cook:
+##### 20 min
+##### Yield: 6 servings
+##### Level: Easy
 
 1 quart peanut oil
 1 cup stone-ground fine cornmeal
