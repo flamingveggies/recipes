@@ -14,7 +14,7 @@ INGREDIENTS
 PREPARATION
 
 In a 10-ounce glass (such as Collins or highball), stir together lime juice and sugar until sugar dissolves.
-Add 1/4 cup crushed ice.
+Add 1/4 cup crushed dry ice.
 Rub mint leaves over rim of glass, then tear leaves in half and add to glass. 
 Gently stir for 15 seconds, then add rum, remaining crushed ice, and club soda. 
 Gently stir for 5 seconds, then tuck mint sprigs into top of glass and insert tall straw.
